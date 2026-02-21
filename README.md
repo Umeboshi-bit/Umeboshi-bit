@@ -1,5 +1,3 @@
-## Hi there 👋
-
 # Hi, I'm Shami 👋
 
 Product Manager based in **Japan**, building domain-specific AI BPO products.
