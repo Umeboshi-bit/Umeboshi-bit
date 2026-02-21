@@ -28,6 +28,6 @@ What I'm looking for:
 
 ## Let's connect
 
-📧 **shami.aplas@gmail.com**
+📧 **shami.recruit.jp@gmail.com**
 
 If you're an engineer in Pakistan and this resonates — reach out. Even if you're just curious about the Japan market, I'm happy to chat.
